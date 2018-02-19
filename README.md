@@ -1,1 +1,1 @@
-Не читай это
+Don't read this
